@@ -10,7 +10,7 @@
     <img alt="FEENIX MD" height="300" src="https://telegra.ph/file/1c14ab0e280632ac32b1a.jpg">
 
     
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨:+𝐅𝐄𝐄𝐍𝐈𝐗+𝐌𝐃+𝐁𝐎𝐓;ᴏᴡɴᴇʀ+ʙʏ+ʏᴀsɪʏᴀ+ᴏғғɪᴄɪᴀʟ;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+ʏᴀsɪʏᴀ+ᴀɴᴅ+ɪɴᴅᴜᴡᴀʀᴀ;ᴘᴏᴡᴇʀᴅ+ʙʏ:+ᴄʏʙᴇʀ+ᴡᴀʀʀɪᴏʀs+x+ᴛᴇᴀᴍ)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨:+𝐅𝐄𝐄𝐍𝐈𝐗+𝐌𝐃+𝐁𝐎𝐓;ᴏᴡɴᴇʀ+ʙʏ+ꜱᴀꜱɪʏᴀ+ᴏғғɪᴄɪᴀʟ;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+Sᴀsɪʏᴀ+ᴀɴᴅ+ᴋᴀꜱᴜɴ;ᴘᴏᴡᴇʀᴅ+ʙʏ:+ᴍʀ+ᴋᴀsɴ+ꜰᴇᴇɴɪx+ᴛᴇᴀᴍ)](https://git.io/typing-svg)
 
 
 ![forks](https://img.shields.io/github/forks/yasiyaofc1/FORZEN-MD?label=Forks&style=social)
@@ -67,7 +67,7 @@
  <a href="https://telegra.ph/file/14ee0a72f04bb59364649.jpg">
     <img alt="FEENIX MD MD OWNER" height="80" src="https://telegra.ph/file/14ee0a72f04bb59364649.jpg">
 
-**[» Contact For](https://wa.me+94722807725)**
+**[» Contact For](https://wa.me+94722807735)**
 ㅤ
  ㅤ
  ---
